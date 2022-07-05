@@ -4,9 +4,9 @@
 
 👷🏽‍♂️⚙ Mechatronic Engineer - MSc Mechanical Engineering.
 
-🌎 Colombian living in brazil. 
+🌎 Colombian. 
 
-:pushpin: Live in Manizales
+:pushpin: Live in Manizales.
 
 ##
 
