@@ -2,7 +2,7 @@
 
 👨🏽‍🦲 I am Oscar Stiven Morales Zapata.
 
-👷🏽‍♂️⚙ Mechatronic Engineer.
+👷🏽‍♂️⚙ Mechatronic Engineer - MSc Mechanical Engineering.
 
 🌎 Colombian living in brazil. 
 ##
